@@ -1,5 +1,5 @@
 
-Fifa 22 Coins Generator PS4 XbOX PC Mobile
+<h1>Fifa 22 Coins Generator PS4 XbOX PC Mobile</h1>
 
 15 sec ago - fifa 22 coin generator is a legitimate tool. It is the best one for getting free coins for ps4, ps5, xbox, mobile and pc. Many people are advertising fake programs or tools that do not work. We are totally different from them because we give you an actual fut 22 coins hack. This has no verification and no survey. Why would you ignore a brand new working tool like ours? Well since you are here i believe you won't.
 
